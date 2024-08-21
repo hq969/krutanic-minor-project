@@ -1,0 +1,1 @@
+# krutanic-minor-project
